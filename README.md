@@ -1,0 +1,1 @@
+# Python-ile-Temel-D-zey-Programlama-E-itimi
